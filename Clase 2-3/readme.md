@@ -12,6 +12,13 @@ Gráfico de datos Encuesta Docente y Promedio (Ejercicio en clases)
 
 CLASE 3
 
+
 libros teoricos, Sandra Rendgen
+
 trabajos de los practicos, Nicholas feltron
+
 imagenes de bibliografia de Gráfico de biografía por Joseph Priestley
+
+trabajo de hoy:
+
+https://miro.com/app/board/uXjVJPycI14=/?userEmail=constanza.garrido.v@ug.uchile.cl&track=true&utm_source=notification&utm_medium=email&utm_campaign=add-to-team-and-board&utm_content=go-to-board&lid=ky325hb341sr
