@@ -11,3 +11,7 @@ Gráfico de datos Encuesta Docente y Promedio (Ejercicio en clases)
 
 
 #CLASE 3#
+
+libros teoricos, Sandra Rendgen
+trabajos de los practicos, Nicholas feltron
+imagenes de bibliografia de Gráfico de biografía por Joseph Priestley
