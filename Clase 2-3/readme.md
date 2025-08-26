@@ -10,3 +10,4 @@ Gráfico de datos Encuesta Docente y Promedio (Ejercicio en clases)
 <img width="805" height="600" alt="479720593-6fa8cbb3-e5d0-493e-a971-318732a9d52a" src="https://github.com/user-attachments/assets/aba23993-3875-4e5c-9f3f-bc2826a5f09e" />
 
 
+#CLASE 3#
